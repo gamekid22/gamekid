@@ -1,2 +1,1 @@
-# gamekid
-  I am a gamer
+i am retired gamer 
